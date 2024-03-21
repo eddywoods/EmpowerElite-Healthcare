@@ -1,2 +1,0 @@
-# EmpowerElite-Healthcare
-EmpowerElite Healthcare
